@@ -1,3 +1,3 @@
 # Has the British Government collapsed yet?
 
-# **No**
+[Here](https://hasthebritishgovernmentcollapsedyet.co.uk/), you can quickly find out.
